@@ -1,0 +1,2 @@
+# Elicite
+ELICITE is born out of the realisation that the world of wine can be intimidating and is often perceived as traditional or exclusive. Our aim is to uncover this world through inspiring digital content; from the beautifully rich culture and distinct heritage, to the fascinating stories from the experts in the industry. ELCITE is your key to gaining the knowledge that will allow you to appreciate every wine you drink. 
